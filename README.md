@@ -16,3 +16,5 @@ Saya merasa senang bisa menjadi bagian dari cluster ini karena memberikan kesemp
 Suasana cluster yang positif membuat kegiatan terasa lebih menyenangkan serta membantu membangun rasa kebersamaan dan kekompakan.
 Saya berharap hubungan baik ini dapat terus terjaga, seluruh anggota cluster dapat saling mendukung, dan kita bisa berkembang bersama selama menjalani perkuliahan.
 Semoga cluster ini menjadi tempat yang nyaman untuk belajar, bekerja sama, dan menciptakan banyak pengalaman berkesan.
+## Harapan Kuliah 
+Saya berharap dapat belajar dengan baik, memperoleh banyak pengalaman baru, memperluas pertemanan, serta mengembangkan kemampuan diri agar dapat meraih prestasi selama kuliah.
